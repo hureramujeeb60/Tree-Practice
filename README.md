@@ -238,7 +238,7 @@ Contributions are welcome! To contribute:
 **Hurera Mujeeb**
 
 - GitHub: [@hureramujeeb60](https://github.com/hureramujeeb60)
-- LinkedIn: [Connect with me](https://www.linkedin.com/in/hureramujeeb/)
+- LinkedIn: [Connect with me](https://www.linkedin.com/in/hurera-mujeeb-b88791235/)
 
 ---
 
